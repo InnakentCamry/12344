@@ -12,3 +12,6 @@
 
 * восхищение
 * мотивированнность :grinning:
+
+# Видео
+[![спокойная музыка](https://i.ytimg.com/vi/STcW7cHmiAc/maxresdefault.jpg)](https://youtu.be/JZZ3y30leUM?list=PL630552067FBCE7EE)
